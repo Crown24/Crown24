@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me, just don't
-- 😄 Pronouns: nothing / stfu
+- 😄 Pronouns: no / thing
 - ⚡ Fun fact: there aren't any
 
 <!---
